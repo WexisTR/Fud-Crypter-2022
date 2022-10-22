@@ -1,0 +1,2 @@
+# Fud-Crypter-2022
+BYPASS ALL ANTIVIRUS
